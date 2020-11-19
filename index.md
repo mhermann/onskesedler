@@ -2,7 +2,14 @@
 
 ### Molly
 
-* 
+* LOL Surprise OMG Remix Dukke Kitty Queen (https://www.eurotoys.dk/product/LOL_Surprise_OMG_Remix_Dukke_Kitty_Queen_LOL_dukker_567240.asp)
+* L.o.l. surprise omg doll lights series beatnik babe (https://www.bog-ide.dk/produkt/4829420/lol-surprise-omg-doll-lights-series-beatnik-babe)
+* L.O.L. dukke - Surprise OMG - Grunge Grrrl (https://shopping.coop.dk/vare/l-o-l-dukke-surprise-omg-grunge-grrrl-med-mere-end-20-overraskelser/35051565123)
+* Scruff a luv
+* Scruff-a-luvs serie 2 families panda (https://www.foetex.dk/produkter/scruff-a-luvs-serie-2-families-panda/100540535/)
+* Scruff-a-Luvs overraskelsesbamse - Snowball (https://shopping.coop.dk/vare/scruff-a-luvs-overraskelsesbamse-snowball-hvilken-bamseven-redder-du-faa-en-bedste-ven-for-livet/5013138669747)
+* Barbie og ting til Barbie - fx. picnic sæt
+
 
 ### Zoey
 
