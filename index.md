@@ -21,3 +21,9 @@
 * Knoppuslespil <https://naturebaby.dk/products/knoppuslespil-bondegardsdyr-haba>
 * Dinobil i træ <https://naturebaby.dk/products/plantoys-dinobil-rex>
 * MAIS+CO vores natur bog - Lille ælling <https://naturebaby.dk/products/mais-co-vores-natur-bog-lille-aelling>
+
+### Mathias
+
+* K. H. Würtz kopper fra La Cabra - Reduction <https://www.lacabra.dk/products/k-h-wurtz-reduction>
+* Strømper str. 45, sorte, gerne fra Boody
+* Boody boxershorts, grå, str. L
