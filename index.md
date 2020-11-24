@@ -31,3 +31,4 @@
 * Raspberry Pi 4 (2, 4 el. 8 gb RAM) <https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>
 * Microsoft Sculpt Ergonomic Desktop
 * Microsoft Ergonomic Desktop
+* J67 spisebordsstole - gerne brugte
