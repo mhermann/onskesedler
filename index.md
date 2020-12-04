@@ -32,7 +32,6 @@
 * Træningsbolde 1 kg <https://yogaudstyr.dk/product.php?id=870>
 * Krus <https://rank.dk/products/tove-ditlevsen>
 * Krus <https://rank.dk/products/alle-os-klima-tosser>
-* Kettlebells
 * Mikunas smørebrødskursus <https://crowdfunding.coop.dk/project/1109/description>
 
 ### Mathias
