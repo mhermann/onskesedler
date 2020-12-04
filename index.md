@@ -10,7 +10,6 @@
 * Scruff-a-Luvs overraskelsesbamse - Snowball <https://shopping.coop.dk/vare/scruff-a-luvs-overraskelsesbamse-snowball-hvilken-bamseven-redder-du-faa-en-bedste-ven-for-livet/5013138669747>
 * Barbie og ting til Barbie - fx. picnic sæt
 
-
 ### Zoey
 
 * Tjugga bamse <https://naturebaby.dk/products/natbjornen-tjugga-bamse-okologisk-og-vegansk>
@@ -21,6 +20,20 @@
 * Knoppuslespil <https://naturebaby.dk/products/knoppuslespil-bondegardsdyr-haba>
 * Dinobil i træ <https://naturebaby.dk/products/plantoys-dinobil-rex>
 * MAIS+CO vores natur bog - Lille ælling <https://naturebaby.dk/products/mais-co-vores-natur-bog-lille-aelling>
+
+### Line
+
+* Kakao <https://greengoddess.dk/products/ceremonial-cacao>
+* Kogebog: Vegansk til den søde tand 
+* Ansigtscreme fra Miild <https://miild.dk/p/miild-facial-cream/>
+* Serum fra Miild <https://miild.dk/p/miild-facial-serum/>
+* Rensegel fra Miild <https://miild.dk/p/miild-cleansing-gel/>
+* Facemist fra Miild <https://miild.dk/p/facemist/>
+* Træningsbolde 1 kg <https://yogaudstyr.dk/product.php?id=870>
+* Krus <https://rank.dk/products/tove-ditlevsen>
+* Krus <https://rank.dk/products/alle-os-klima-tosser>
+* Kettlebells
+* Mikunas smørebrødskursus <https://crowdfunding.coop.dk/project/1109/description>
 
 ### Mathias
 
