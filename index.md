@@ -44,3 +44,4 @@
 * Microsoft Sculpt Ergonomic Desktop
 * Microsoft Ergonomic Desktop
 * J67 spisebordsstole - gerne brugte
+* Espresso kværn eller tilskud hertil. Gerne brugt
