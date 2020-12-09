@@ -36,9 +36,6 @@
 
 ### Mathias
 
-* K. H. Würtz kopper fra La Cabra - Reduction <https://www.lacabra.dk/products/k-h-wurtz-reduction>
-* Strømper str. 45, sorte, gerne fra Boody
-* Boody boxershorts, grå, str. L
 * 24/27" computerskærm til skrivebord (eller tilskud her til)
 * Raspberry Pi 4 (2, 4 el. 8 gb RAM) <https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>
 * Microsoft Sculpt Ergonomic Desktop
