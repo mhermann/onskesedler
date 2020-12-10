@@ -43,3 +43,4 @@
 * J67 spisebordsstole - gerne brugte
 * Elektrisk Espresso kværn eller tilskud hertil. Gerne brugt
 * Cykelholder til bil til 2 eller flere cykler. Til bagsmæk, ikke til anhængertræk. Fx fra Thansen eller Harald Nyborg. Til SEAT Leon st 2016
+* Elektrisk p-skive med automatisk skift mellem sommer- og vintertid. Fx ParkOne 2
