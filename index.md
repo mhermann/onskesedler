@@ -41,4 +41,5 @@
 * Microsoft Sculpt Ergonomic Desktop
 * Microsoft Ergonomic Desktop
 * J67 spisebordsstole - gerne brugte
-* Espresso kværn eller tilskud hertil. Gerne brugt
+* Elektrisk Espresso kværn eller tilskud hertil. Gerne brugt
+* Cykelholder til bil til 2 eller flere cykler. Til bagsmæk, ikke til anhængertræk. Fx fra Thansen eller Harald Nyborg. Til SEAT Leon st 2016
