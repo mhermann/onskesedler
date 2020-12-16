@@ -24,7 +24,6 @@
 ### Line
 
 * Kakao <https://greengoddess.dk/products/ceremonial-cacao>
-* Kogebog: Vegansk til den søde tand 
 * Ansigtscreme fra Miild <https://miild.dk/p/miild-facial-cream/>
 * Serum fra Miild <https://miild.dk/p/miild-facial-serum/>
 * Rensegel fra Miild <https://miild.dk/p/miild-cleansing-gel/>
