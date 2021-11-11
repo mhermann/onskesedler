@@ -1,6 +1,6 @@
 ## Ønskesedler
 
-### Molly
+<!-- ### Molly
 
 * LOL Surprise OMG Remix Dukke Kitty Queen <https://www.eurotoys.dk/product/LOL_Surprise_OMG_Remix_Dukke_Kitty_Queen_LOL_dukker_567240.asp>
 * L.o.l. surprise omg doll lights series beatnik babe <https://www.bog-ide.dk/produkt/4829420/lol-surprise-omg-doll-lights-series-beatnik-babe>
@@ -31,15 +31,16 @@
 * Træningsbolde 1 kg <https://yogaudstyr.dk/product.php?id=870>
 * Krus <https://rank.dk/products/tove-ditlevsen>
 * Krus <https://rank.dk/products/alle-os-klima-tosser>
-* Mikunas smørebrødskursus <https://crowdfunding.coop.dk/project/1109/description>
+* Mikunas smørebrødskursus <https://crowdfunding.coop.dk/project/1109/description> -->
 
 ### Mathias
 
-* 24/27" computerskærm til skrivebord (eller tilskud her til)
 * Raspberry Pi 4 (2, 4 el. 8 gb RAM) <https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>
-* Microsoft Sculpt Ergonomic Desktop
-* Microsoft Ergonomic Desktop
 * J67 spisebordsstole - gerne brugte
-* Elektrisk Espresso kværn eller tilskud hertil. Gerne brugt
-* Cykelholder til bil til 2 eller flere cykler. Til bagsmæk, ikke til anhængertræk. Fx fra Thansen eller Harald Nyborg. Til SEAT Leon st 2016
-* Elektrisk p-skive med automatisk skift mellem sommer- og vintertid. Fx ParkOne 2
+* Elektrisk p-skive med automatisk skift mellem sommer- og vintertid. Gerne med solceller.
+* Le Creuset rektangulært fad
+* God pande med teflon(-lignende) belægning
+* Wilfa Temp elkedel (vær opmærksom på at den ofte er på tilbud til <300 selvom normalpris er 599)
+* Patagonia hoodie (fx. Back For Good Uprisal el. P-6 Label Uprisal), str xxl
+* Patagonia sweatshirt Pilot Crew neck str. xxl
+* Lufttæt beholder til kaffebønner
