@@ -23,8 +23,8 @@
 
 ### Zoey
 
-* Legemælk: (https://www.mammashop.dk/products/magni-legemad-naturli-maelk)
-* Legesmør: (https://www.mammashop.dk/products/magni-legemad-naturli-smorbar)
+* Legemælk: https://www.mammashop.dk/products/magni-legemad-naturli-maelk
+* Legesmør: https://www.mammashop.dk/products/magni-legemad-naturli-smorbar
 * Træpuslespil til 2 årige
 * Legetoaster og lege piskeris
 
