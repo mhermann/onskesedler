@@ -8,7 +8,6 @@
     * Kaffebutik
     * Børnelæge Barbie
 * Kasket
-* T-shirt uden palietter
 * Løbehjul
 * Our Generation tilbehør
     * Deluxe outfit: Owl be cruising
