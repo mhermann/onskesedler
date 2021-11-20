@@ -19,6 +19,7 @@
 * Orbies
 * Fila træningssæt, str. 134-140
 * Scruv a love
+* Yogamåtte, helst mellemblå
 
 ### Zoey
 
