@@ -22,10 +22,9 @@
 
 ### Zoey
 
-* Legemælk: <https://www.mammashop.dk/products/magni-legemad-naturli-maelk>
-* Legesmør: <https://www.mammashop.dk/products/magni-legemad-naturli-smorbar>
 * Træpuslespil til 2 årige
-* Legetoaster og lege piskeris
+* Legetoaster og lege piskeris fra BR og Føtex
+* Alt plastiklegetøj med Gurli Gris - bil, flyvemaskine osv - meget gerne brugt 
 
 <!-- ### Line
 
