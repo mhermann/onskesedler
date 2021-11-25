@@ -12,10 +12,7 @@
 * Our Generation tilbehør
     * Deluxe outfit: Owl be cruising
     * Deluxe outfit: Cute to scoot
-* Tracking ur, fx.
-    * Fitbit Ace 3
-    * Garmin Vivofit Jr
-* Tiny Treasure tilbehør
+* Tiny Treasure tilbehør (undtagen pusletaske)
 * Orbies
 * Fila træningssæt, str. 134-140
 * Scruv a love
@@ -23,7 +20,6 @@
 ### Zoey
 
 * Træpuslespil til 2 årige
-* Legetoaster og lege piskeris fra BR og Føtex
 * Alt plastiklegetøj med Gurli Gris - bil, flyvemaskine osv - meget gerne brugt 
 
 <!-- ### Line
