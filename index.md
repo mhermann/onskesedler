@@ -49,3 +49,5 @@
 * Patagonia hoodie (fx. Back For Good Uprisal el. P-6 Label Uprisal), str xxl
 * Patagonia sweatshirt Pilot Crew neck str. xxl
 * Lufttæt beholder til kaffebønner
+* Aqara Temperatursensorer (https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886)
+* Deodorant fra Relevant (https://relevantcos.dk/products/ocean-plastic-deodorant)
