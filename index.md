@@ -40,7 +40,7 @@
 
 ### Mathias
 
-* Raspberry Pi 4 (2, 4 el. 8 gb RAM) <https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>
+* Raspberry Pi 4 (2, 4 el. 8 gb RAM) (<https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>)
 * J67 spisebordsstole - gerne brugte
 * Elektrisk p-skive med automatisk skift mellem sommer- og vintertid. Gerne med solceller.
 * Le Creuset rektangulært fad
@@ -49,5 +49,5 @@
 * Patagonia hoodie (fx. Back For Good Uprisal el. P-6 Label Uprisal), str xxl
 * Patagonia sweatshirt Pilot Crew neck str. xxl
 * Lufttæt beholder til kaffebønner
-* Aqara Temperatursensorer (https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886)
-* Deodorant fra Relevant (https://relevantcos.dk/products/ocean-plastic-deodorant)
+* Aqara Temperatursensorer (<https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886>)
+* Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
