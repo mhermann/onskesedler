@@ -41,7 +41,7 @@
 * Elektrisk p-skive med automatisk skift mellem sommer- og vintertid. Gerne med solceller.
 * Le Creuset rektangulært fad
 * God pande med teflon(-lignende) belægning
-* Wilfa Temp elkedel (vær opmærksom på at den ofte er på tilbud til <300 selvom normalpris er 599)
+* Wilfa Temp elkedel (vær opmærksom på at den ofte er på tilbud til <300 selvom normalpris er 599). Findes også under navnet Conzept Electric til 199 (<https://www.grydeguru.dk/elkedel-stal-1-7-l-med-temperaturkontrol-conzept-electric.html>)
 * Patagonia hoodie (fx. Back For Good Uprisal el. P-6 Label Uprisal), str xxl
 * Patagonia sweatshirt Pilot Crew neck str. xxl
 * Lufttæt beholder til kaffebønner
