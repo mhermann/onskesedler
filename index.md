@@ -47,3 +47,4 @@
 * Lufttæt beholder til kaffebønner
 * Aqara Temperatursensorer (<https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886>)
 * Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
+* Markus kontorstol fra IKEA (<https://www.ikea.com/dk/da/p/markus-kontorstol-vissle-morkegra-70261150/>)
