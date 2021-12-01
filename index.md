@@ -49,3 +49,4 @@
 * Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
 * Markus kontorstol fra IKEA eller tilskud hertil (<https://www.ikea.com/dk/da/p/markus-kontorstol-vissle-morkegra-70261150/>)
 * Momentnøgle
+* Phillips Multigroom 7000 trimmer
