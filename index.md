@@ -22,17 +22,14 @@
 * Træpuslespil til 2 årige
 * Alt plastiklegetøj med Gurli Gris - bil, flyvemaskine osv - meget gerne brugt 
 
-<!-- ### Line
+### Line
 
-* Kakao <https://greengoddess.dk/products/ceremonial-cacao>
-* Ansigtscreme fra Miild <https://miild.dk/p/miild-facial-cream/>
-* Serum fra Miild <https://miild.dk/p/miild-facial-serum/>
-* Rensegel fra Miild <https://miild.dk/p/miild-cleansing-gel/>
-* Facemist fra Miild <https://miild.dk/p/facemist/>
-* Træningsbolde 1 kg <https://yogaudstyr.dk/product.php?id=870>
-* Krus <https://rank.dk/products/tove-ditlevsen>
-* Krus <https://rank.dk/products/alle-os-klima-tosser>
-* Mikunas smørebrødskursus <https://crowdfunding.coop.dk/project/1109/description> -->
+* Kettlebell 8 kg
+* Håndvægte 3 kg
+* Gavekort til For Emma (<https://foremma.dk/shop/>)
+* Gavekort til Espressohouse
+* Gavekort til Magasin
+* <https://thehairlust.com/products/hair-and-scalp-detox-scrub>
 
 ### Mathias
 
