@@ -38,7 +38,6 @@
 * Le Creuset rektangulært fad
 * God pande med teflon(-lignende) belægning
 * Patagonia sweatshirt Pilot Crew neck str. xxl
-* Lufttæt beholder til kaffebønner
 * Aqara Temperatursensorer (<https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886>)
 * Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
 * Markus kontorstol fra IKEA eller tilskud hertil (<https://www.ikea.com/dk/da/p/markus-kontorstol-vissle-morkegra-70261150/>)
