@@ -36,7 +36,6 @@
 * Raspberry Pi 4 (2, 4 el. 8 gb RAM) (<https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>)
 * Aqara Temperatursensorer (<https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886>)
 * Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
-* Markus kontorstol fra IKEA eller tilskud hertil (<https://www.ikea.com/dk/da/p/markus-kontorstol-vissle-morkegra-70261150/>)
 * Hæve/sænke skrivebord (140 cm el. 160 cm x 80 cm) eller tilskud hertil
 * Momentnøgle
 * Ikea Symfonisk højttaler (<https://www.ikea.com/dk/da/p/symfonisk-wi-fi-hojttaler-sort-smart-gen-2-50506573/>)
