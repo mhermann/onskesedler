@@ -1,6 +1,6 @@
 ## Ønskesedler
 
-### Molly
+<!-- ### Molly
 
 * Penge
 * Slik
@@ -29,7 +29,7 @@
 * Gavekort til For Emma (<https://foremma.dk/shop/>)
 * Gavekort til Espressohouse
 * Gavekort til Magasin
-* <https://thehairlust.com/products/hair-and-scalp-detox-scrub>
+* <https://thehairlust.com/products/hair-and-scalp-detox-scrub> -->
 
 ### Mathias
 
