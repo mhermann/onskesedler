@@ -39,7 +39,6 @@
 * Hæve/sænke skrivebord (140 cm el. 160 cm x 80 cm) eller tilskud hertil
 * Momentnøgle
 * Ikea Symfonisk højttaler (<https://www.ikea.com/dk/da/p/symfonisk-wi-fi-hojttaler-sort-smart-gen-2-50506573/>)
-* Ikea Obegränsad pladespiller (<https://www.ikea.com/dk/da/p/obegraensad-pladespiller-sort-70526339/>)
 * Sonos Ray
 * Joggingbukser - fx. Dedicated Lund str. XL
 * Skruetrækker med skralde
