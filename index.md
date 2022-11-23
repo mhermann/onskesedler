@@ -1,35 +1,27 @@
 ## Ønskesedler
 
-<!-- ### Molly
-
-* Penge
-* Slik
-* Barbie
-    * Kaffebutik
-    * Børnelæge Barbie
-* Kasket
-* Løbehjul
-* Our Generation tilbehør
-    * Deluxe outfit: Owl be cruising
-    * Deluxe outfit: Cute to scoot
-* Tiny Treasure tilbehør (undtagen pusletaske)
-* Orbies
-* Fila træningssæt, str. 134-140
-* Scruv a love
-
 ### Zoey
 
-* Træpuslespil til 2 årige
-* Alt plastiklegetøj med Gurli Gris - bil, flyvemaskine osv - meget gerne brugt 
+* Klistermærkebøger 
+* Vandflaske med enhjørning: (<https://www.pixizoo.dk/skip-hop-zoo-drikkedunk-stal-enhjorning>)
+* Gonge føleskiver - meget gerne brugte (<https://legeakademiet.dk/foleskiver-saet-a-19-2117.html>)
+* Gonge tumletop - meget gerne brugt (<https://legeakademiet.dk/tumletop-mini-nordic-19-2899.html>)
 
-### Line
+### Molly
 
-* Kettlebell 8 kg
-* Håndvægte 3 kg
-* Gavekort til For Emma (<https://foremma.dk/shop/>)
-* Gavekort til Espressohouse
-* Gavekort til Magasin
-* <https://thehairlust.com/products/hair-and-scalp-detox-scrub> -->
+* Pensler
+* Lærreder
+* Staffeli
+* Malerpalette
+* Clay perler 
+* Flade perler (<https://www.smyks.dk/shop/93-fimo-ler-perler/19847-fimo-perler-startsaet-heishi-moentform-blandede-med-tilbehoer-8x1-mm-ca-2850-stk/>)
+* Aarhus Tigers leggings (Nike Pro Tights (lange), str 146-156) (<https://aarhustigerscheerleaders.dk/cms/ShopOverview.aspx>)
+* Ballet trøje str. 10-12 år (<https://www.balletbutikken.dk/shop/graa-wear-moi-7103p.html>)
+* Ballet leggings med fødder i hvid str. 152
+* Squishmallows 50 cm
+* Vildkat (brætspil)
+* Stratego (brætspil)
+* Morgenkåbe i pastelfarve (ensfarvet) str. 152
 
 ### Mathias
 
