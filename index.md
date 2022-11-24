@@ -19,7 +19,6 @@
 * Ballet trøje str. 10-12 år (<https://www.balletbutikken.dk/shop/graa-wear-moi-7103p.html>)
 * Ballet leggings med fødder i hvid str. 152
 * Squishmallows 50 cm
-* Vildkat (brætspil)
 * Stratego (brætspil)
 * Morgenkåbe i pastelfarve (ensfarvet) str. 152
 
