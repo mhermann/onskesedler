@@ -5,7 +5,6 @@
 * Klistermærkebøger 
 * Vandflaske med enhjørning: (<https://www.pixizoo.dk/skip-hop-zoo-drikkedunk-stal-enhjorning>)
 * Gonge føleskiver - meget gerne brugte (<https://legeakademiet.dk/foleskiver-saet-a-19-2117.html>)
-* Gonge tumletop - meget gerne brugt (<https://legeakademiet.dk/tumletop-mini-nordic-19-2899.html>)
 
 ### Molly
 
