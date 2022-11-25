@@ -20,6 +20,7 @@
 * Squishmallows 50 cm
 * Stratego (brætspil)
 * Morgenkåbe i pastelfarve (ensfarvet) str. 152
+* Squishville slikbutik (<https://www.legeland.dk/brand/squishville-squismallows/squishville-slikbutik.htm>)
 
 ### Mathias
 
