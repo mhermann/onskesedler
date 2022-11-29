@@ -37,3 +37,21 @@
 * Gode Torx bits
 * Seagate Backup Plus Ultra Touch harddisk 1 el. 2 TB (<https://www.proshop.dk/Harddisk-Ekstern/Seagate-Backup-Plus-Ultra-Touch-STHH1000400-Ekstern-Harddisk-1-TB-Sort/2716426>)
 * Ikea Vemund whiteboard 70x50 cm
+
+### Line
+
+* The Fibre Fuelled Cookbook: Inspiring Plant-Based Recipes to Turbocharge Your Health (<https://www.williamdam.dk/the-fibre-fuelled-cookbook-inspiring-plant-based-recipes-to-turbocharge-your-health__2671403>)
+* Girls just wanna have funds (<https://www.saxo.com/dk/girls-just-wanna-have-funds_bog_9780241607800>)
+* At leve med AD(H)D (<https://www.bog-ide.dk/produkt/2236620/charlotte-jokumsen-og-christina-wex-at-leve-med-adhd>)
+* Håndvægte 6 kg 
+* Cupholder til ladcykel
+* Ismaske til øjnene fra Matas 
+* Serum (<https://www.sephora.dk/p/excess-oil-solution-with-20--niacinamide---face-serum-P10043115.html>)
+* Serum (<https://eu.theinkeylist.com/products/collagen-booster>)
+* Øjencreme (<https://eu.theinkeylist.com/products/retinol-eye-cream>)
+* Peel (<https://eu.theinkeylist.com/products/apple-cider-vinegar-acid-peel>)
+* Læbepomade (<https://www.sephora.dk/p/face-lip-balm---stick-protecteur-levres-spf20-P3763077.html>)
+* Solcreme (<https://www.sephora.dk/p/mineral-uv-filters-spf-30-with-antioxidants-P10017419.html>)
+* T-shirt, str. L (<https://shop.drc.ngo/products/womens-rights-are-human-rights-1>)
+* Håndmaske (<https://www.sephora.dk/p/hydra-reset---intensive-recovery-hand-mask-P10021319.html>)
+* Gavekort til Sephora
