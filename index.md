@@ -37,7 +37,7 @@
 * Gode Torx bits
 * Seagate Backup Plus Ultra Touch harddisk 1 el. 2 TB (<https://www.proshop.dk/Harddisk-Ekstern/Seagate-Backup-Plus-Ultra-Touch-STHH1000400-Ekstern-Harddisk-1-TB-Sort/2716426>)
 * Ikea Vemund whiteboard 70x50 cm
-* Pandebeskyttere fx <https://www.imerco.dk/cook-baker-pandebeskytter-3-stk-oe-27-34-38-cm-filt-graa?id=100400261&dfw_tracker=61960-100400261&utm_medium=cpc&utm_source=google&utm_campaign=18604387628&gclid=CjwKCAiAp7GcBhA0EiwA9U0mtnXTr0tWEP9Phkf60PARUf8jIciqieUSYbsktWxsqEJ9v16fLaRgkBoChvgQAvD_BwE>
+* Pandebeskyttere fx <https://www.imerco.dk/cook-baker-pandebeskytter-3-stk-oe-27-34-38-cm-filt-graa>
 
 ### Line
 
