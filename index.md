@@ -26,17 +26,12 @@
 ### Mathias
 
 * Raspberry Pi 4 (2, 4 el. 8 gb RAM) (<https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>)
-* Aqara Temperatursensorer (<https://www.proshop.dk/Smart-Home/Aqara-Temperature-And-Humitidy-Sensor/2718886>)
 * Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
 * Hæve/sænke skrivebord (140 cm el. 160 cm x 80 cm) eller tilskud hertil
-* Momentnøgle
 * Ikea Symfonisk højttaler (<https://www.ikea.com/dk/da/p/symfonisk-wi-fi-hojttaler-sort-smart-gen-2-50506573/>)
 * Sonos Ray
-* Joggingbukser - fx. Dedicated Lund str. XL
 * Skruetrækker med skralde
 * Gode Torx bits
-* Seagate Backup Plus Ultra Touch harddisk 1 el. 2 TB (<https://www.proshop.dk/Harddisk-Ekstern/Seagate-Backup-Plus-Ultra-Touch-STHH1000400-Ekstern-Harddisk-1-TB-Sort/2716426>)
-* Ikea Vemund whiteboard 70x50 cm
 * Pandebeskyttere fx <https://www.imerco.dk/cook-baker-pandebeskytter-3-stk-oe-27-34-38-cm-filt-graa>
 
 ### Line
