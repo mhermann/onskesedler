@@ -22,6 +22,8 @@
 * Morgenkåbe i pastelfarve (ensfarvet) str. 152
 * Squishville slikbutik (<https://www.legeland.dk/brand/squishville-squismallows/squishville-slikbutik.htm>)
 * kinaskak
+* Vandflaske (<https://eu.waterdrop.com/products/frida-kahlo-glass>)
+* forklæde til store børn. cirka str 156. neutral farve.
 
 ### Mathias
 
