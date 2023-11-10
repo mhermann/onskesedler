@@ -1,6 +1,6 @@
 ## Ønskesedler
 
-### Zoey
+<!-- ### Zoey
 
 * Klistermærkebøger 
 * Vandflaske med enhjørning: (<https://www.pixizoo.dk/skip-hop-zoo-drikkedunk-stal-enhjorning>)
@@ -23,19 +23,22 @@
 * Squishville slikbutik (<https://www.legeland.dk/brand/squishville-squismallows/squishville-slikbutik.htm>)
 * kinaskak
 * Vandflaske (<https://eu.waterdrop.com/products/frida-kahlo-glass>)
-* forklæde til store børn. cirka str 156. neutral farve.
+* forklæde til store børn. cirka str 156. neutral farve. -->
 
 ### Mathias
 
-* Raspberry Pi 4 (2, 4 el. 8 gb RAM) (<https://raspberrypi.dk/produkt/raspberry-pi-4-model-b-2-gb/>)
-* Deodorant fra Relevant (<https://relevantcos.dk/products/ocean-plastic-deodorant>)
-* Hæve/sænke skrivebord (140 cm el. 160 cm x 80 cm) eller tilskud hertil
-* Ikea Symfonisk højttaler (<https://www.ikea.com/dk/da/p/symfonisk-wi-fi-hojttaler-sort-smart-gen-2-50506573/>)
+* Strømper (sorte) str 46
 * Sonos Ray
-* Skruetrækker med skralde
-* Gode Torx bits
-* Pandebeskyttere fx <https://www.imerco.dk/cook-baker-pandebeskytter-3-stk-oe-27-34-38-cm-filt-graa>
+* Jogging bukser, fx Dedicated Lund str. XL
+* Patagonia Better Gloves
+* Morgenkåbe, mørkeblå, str. XXL
+* Cocktailglas
+* Kaffeske (til at måle kværnet kaffe op til filter)
+* Kniv, Santoku, fx. Fiskars Functional Form - Asiatisk Kokkekniv
+* Tilskud til tørretumbler
+* Hue, fx. fra Cotopaxi
 
+<!-- 
 ### Line
 
 * The Fibre Fuelled Cookbook: Inspiring Plant-Based Recipes to Turbocharge Your Health (<https://www.williamdam.dk/the-fibre-fuelled-cookbook-inspiring-plant-based-recipes-to-turbocharge-your-health__2671403>)
@@ -52,4 +55,4 @@
 * Solcreme (<https://www.sephora.dk/p/mineral-uv-filters-spf-30-with-antioxidants-P10017419.html>)
 * T-shirt, str. L (<https://shop.drc.ngo/products/womens-rights-are-human-rights-1>)
 * Håndmaske (<https://www.sephora.dk/p/hydra-reset---intensive-recovery-hand-mask-P10021319.html>)
-* Gavekort til Sephora
+* Gavekort til Sephora -->
