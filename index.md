@@ -37,6 +37,7 @@
 * Kniv, Santoku, fx. Fiskars Functional Form - Asiatisk Kokkekniv
 * Tilskud til tørretumbler
 * Hue, fx. fra Cotopaxi
+* Startsæt til at dyrke krydderurter fx <https://www.ledproff.dk/hydroponisk-krydderurtehaver/4477-ledlife-hydroponisk-kokkenhave-hvid-inkl-vaekstlys-8-pladser-timer-28l-vandtank.html?gclid=EAIaIQobChMIiqHCy-G7ggMVVQ-iAx0S5QuVEAQYBSABEgKeA_D_BwE#/25-farve-hvid>
 
 <!-- 
 ### Line
