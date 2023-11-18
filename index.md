@@ -46,21 +46,11 @@
 * Hue, fx. fra Cotopaxi
 * Startsæt til at dyrke krydderurter fx <https://www.ledproff.dk/hydroponisk-krydderurtehaver/4477-ledlife-hydroponisk-kokkenhave-hvid-inkl-vaekstlys-8-pladser-timer-28l-vandtank.html?gclid=EAIaIQobChMIiqHCy-G7ggMVVQ-iAx0S5QuVEAQYBSABEgKeA_D_BwE#/25-farve-hvid>
 
-<!-- 
 ### Line
 
-* The Fibre Fuelled Cookbook: Inspiring Plant-Based Recipes to Turbocharge Your Health (<https://www.williamdam.dk/the-fibre-fuelled-cookbook-inspiring-plant-based-recipes-to-turbocharge-your-health__2671403>)
-* Girls just wanna have funds (<https://www.saxo.com/dk/girls-just-wanna-have-funds_bog_9780241607800>)
-* At leve med AD(H)D (<https://www.bog-ide.dk/produkt/2236620/charlotte-jokumsen-og-christina-wex-at-leve-med-adhd>)
-* Håndvægte 6 kg 
-* Cupholder til ladcykel
-* Ismaske til øjnene fra Matas 
-* Serum (<https://www.sephora.dk/p/excess-oil-solution-with-20--niacinamide---face-serum-P10043115.html>)
-* Serum (<https://eu.theinkeylist.com/products/collagen-booster>)
-* Øjencreme (<https://eu.theinkeylist.com/products/retinol-eye-cream>)
-* Peel (<https://eu.theinkeylist.com/products/apple-cider-vinegar-acid-peel>)
-* Læbepomade (<https://www.sephora.dk/p/face-lip-balm---stick-protecteur-levres-spf20-P3763077.html>)
-* Solcreme (<https://www.sephora.dk/p/mineral-uv-filters-spf-30-with-antioxidants-P10017419.html>)
-* T-shirt, str. L (<https://shop.drc.ngo/products/womens-rights-are-human-rights-1>)
-* Håndmaske (<https://www.sephora.dk/p/hydra-reset---intensive-recovery-hand-mask-P10021319.html>)
-* Gavekort til Sephora -->
+* 2 x 6 kg håndvægte med plastik udenpå
+* Termosokker uden uld
+* Tickrmeter (<https://tickrmeter.dk/>)
+* Grøntsagshakker (<https://www.imerco.dk/oxo-hakker-m-opsamler-h-9-x-b-12-5-x-d-21-cm-absplastik-rustfrit-staal-termoplast?id=100390649>)
+* Hoodie regnbuegrafik og størrelse medium (<https://flirtshirt.dk/ny-shop/snuggle/snuggle-hoodie-5/>)
+* Eyeliner (<https://www.matas.dk/fenty-flyliner-longwear-liquid-eyeliner>)
