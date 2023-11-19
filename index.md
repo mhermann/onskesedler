@@ -36,6 +36,8 @@
 
 * Strømper (sorte) str 46
 * Sonos Ray
+* Sonos Beam
+* Sonos One SL
 * Jogging bukser, fx Dedicated Lund str. XL
 * Patagonia Better Gloves
 * Morgenkåbe, mørkeblå, str. XXL
