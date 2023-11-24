@@ -17,11 +17,9 @@
 
 * Gavekort til Normal
 * Neon skilt fra Harald Nyborg (<https://www.harald-nyborg.dk/bright-design-neonskilt-palme-h-31-x-b-25-cm>)
-* Ikea skrivebordsopbevaring Drönjöns (<https://www.ikea.com/dk/da/p/droenjoens-skrivebordsopbevaring-hvid-00428827/>)
 * Flower Cup Pink fra Normal
 * Slushy maker (<https://www.coolstuff.dk/hjem-have/koekken/kopper-glas/chillfactor-slushy-maker-pid-18072>)
 * Gavekort til McDonalds
-* Taylor Swift The Eras Tour Beige Hoodie str. small (<https://taylorswift.universal-music.de/en/collections/the-eras-tour-collection/products/taylor-swift-the-eras-tour-beige-hoodie>)
 * Taylor Swift Swiftie Necklace (<https://www.etsy.com/dk-en/listing/1596079944/taylor-swift-swiftie-necklace-a-stylish>)
 * Taylor Swift A lot going on at the moment shirt str. m (<https://www.etsy.com/dk-en/listing/1594794502/taylor-swift-a-lot-going-on-at-the?click_key=4bdbd23bf032d72b108f5b10429629cee24f3f64%3A1594794502&click_sum=bda86748&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=taylor+swiftie+merch&ref=sr_gallery-2-17&organic_search_click=1&pro=1&frs=1&referrer_page_guid=f770cd0fd36.75df8984bb466c8c3b27.00>[link])
 * Penge
@@ -52,4 +50,4 @@
 * Tickrmeter (<https://tickrmeter.dk/>)
 * Grøntsagshakker (<https://www.imerco.dk/oxo-hakker-m-opsamler-h-9-x-b-12-5-x-d-21-cm-absplastik-rustfrit-staal-termoplast?id=100390649>)
 * Hoodie regnbuegrafik og størrelse medium (<https://flirtshirt.dk/ny-shop/snuggle/snuggle-hoodie-5/>)
-* Eyeliner (<https://www.matas.dk/fenty-flyliner-longwear-liquid-eyeliner>)
+* Fenty Beauty - Invisimatte Instant Setting + Blotting Powder (<https://www.matas.dk/fenty-invisimatte>)
