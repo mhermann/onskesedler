@@ -21,6 +21,7 @@
 * Gavekort til McDonalds
 * Penge
 * Gavekort til smyks.dk
+* Boks med Heishi Fimo ler perler, rainbow (<https://kreabeads.dk/vare/boks-med-heishi-fimo-ler-perler-rainbow-6x1mm/>)
 
 ### Mathias
 
