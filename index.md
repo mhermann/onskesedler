@@ -7,7 +7,6 @@
 ** <https://www.plusbog.dk/bluey-let-s-stick-bluey-9780241551950>
 ** <https://www.saxo.com/dk/spidey-og-hans-fantastiske-venner-aktivitetsbog-kolli-6_bog_9788727014722>
 * Spider man kostume 104 - meget gerne brugt 
-* Doc Mcstuffins kostume (meget vigtigt at der sidder ægte “lægenavneskilt” på) meget gerne brugt 
 * Paw patrol Wall stickers som dem her: <https://www.bilka.dk/produkter/paw-patrol-kaempe-wallstickers/100553517/>
 * Paw patrol plakat
 * Magnatiles - meget gerne brugt
