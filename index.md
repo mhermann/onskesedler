@@ -24,19 +24,16 @@
 
 ### Mathias
 
-* Strømper (sorte) str 46
 * Sonos Ray
 * Sonos Beam
 * Sonos One SL
-* Jogging bukser, fx Dedicated Lund str. XL
 * Patagonia Better Gloves
 * Morgenkåbe, mørkeblå, str. XXL
 * Cocktailglas
 * Kaffeske (til at måle kværnet kaffe op til filter)
-* Kniv, Santoku, fx. Fiskars Functional Form - Asiatisk Kokkekniv
 * Tilskud til tørretumbler
-* Hue, fx. fra Cotopaxi
 * Startsæt til at dyrke krydderurter fx <https://www.ledproff.dk/hydroponisk-krydderurtehaver/4477-ledlife-hydroponisk-kokkenhave-hvid-inkl-vaekstlys-8-pladser-timer-28l-vandtank.html?gclid=EAIaIQobChMIiqHCy-G7ggMVVQ-iAx0S5QuVEAQYBSABEgKeA_D_BwE#/25-farve-hvid>
+* Saysky Blaze Pants løbebukser str. XL
 
 ### Line
 
