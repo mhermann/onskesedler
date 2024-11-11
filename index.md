@@ -1,6 +1,6 @@
 ## Ønskesedler
 
-### Zoey
+<!-- ### Zoey
 
 * Modellervoks og ting dertil 
 * Aktivitetsbøger meget gerne Bluey eller Spidey og ligesom dem her: 
@@ -10,9 +10,9 @@
 * Paw patrol Wall stickers som dem her: <https://www.bilka.dk/produkter/paw-patrol-kaempe-wallstickers/100553517/>
 * Paw patrol plakat
 * Magnatiles - meget gerne brugt
-* Paw patrol skraldespand 
+* Paw patrol skraldespand  -->
 
-### Molly
+<!-- ### Molly
 
 * Gavekort til Normal
 * Neon skilt fra Harald Nyborg (<https://www.harald-nyborg.dk/bright-design-neonskilt-palme-h-31-x-b-25-cm>)
@@ -20,26 +20,18 @@
 * Gavekort til McDonalds
 * Penge
 * Gavekort til smyks.dk
-* Boks med Heishi Fimo ler perler, rainbow (<https://kreabeads.dk/vare/boks-med-heishi-fimo-ler-perler-rainbow-6x1mm/>)
+* Boks med Heishi Fimo ler perler, rainbow (<https://kreabeads.dk/vare/boks-med-heishi-fimo-ler-perler-rainbow-6x1mm/>) -->
 
 ### Mathias
 
 * Sonos Ray
-* Sonos Beam
-* Sonos One SL
-* Patagonia Better Gloves
-* Morgenkåbe, mørkeblå, str. XXL
-* Cocktailglas
-* Kaffeske (til at måle kværnet kaffe op til filter)
-* Tilskud til tørretumbler
-* Startsæt til at dyrke krydderurter fx <https://www.ledproff.dk/hydroponisk-krydderurtehaver/4477-ledlife-hydroponisk-kokkenhave-hvid-inkl-vaekstlys-8-pladser-timer-28l-vandtank.html?gclid=EAIaIQobChMIiqHCy-G7ggMVVQ-iAx0S5QuVEAQYBSABEgKeA_D_BwE#/25-farve-hvid>
+* Sonos Era 100
+* Ikea Symfonisk
+* Pastaskåle
+* Airfryer - fx med to rum
+* Ninja blender BN800EU (https://www.pricerunner.dk/pl/1244-5294281/Koekkenmaskiner-Foodprocessorer/Ninja-BN800EU-Sammenlign-Priser)
 * Saysky Blaze Pants løbebukser str. XL
-
-### Line
-
-* 2 x 6 kg håndvægte med plastik udenpå
-* Termosokker uden uld
-* Tickrmeter (<https://tickrmeter.dk/>)
-* Grøntsagshakker (<https://www.imerco.dk/oxo-hakker-m-opsamler-h-9-x-b-12-5-x-d-21-cm-absplastik-rustfrit-staal-termoplast?id=100390649>)
-* Hoodie regnbuegrafik og størrelse medium (<https://flirtshirt.dk/ny-shop/snuggle/snuggle-hoodie-5/>)
-* Fenty Beauty - Invisimatte Instant Setting + Blotting Powder (<https://www.matas.dk/fenty-invisimatte>)
+* Plakat fra mormor and me A3 (link kommer)
+* Støvsuger (link kommer)
+* J67 stole - gerne brugte
+* Pladespiller AT-LP60XBT eller AT-LP60XUSB
