@@ -26,8 +26,8 @@
 
 * Sonos Ray
 * Sonos Era 100
-* Ikea Symfonisk
-* Pastaskåle
+* Ikea Symfonisk Bookshelf
+* Pastaskåle, fx rillet, brun eller blå
 * Airfryer - fx med to rum
 * Ninja blender BN800EU (https://www.pricerunner.dk/pl/1244-5294281/Koekkenmaskiner-Foodprocessorer/Ninja-BN800EU-Sammenlign-Priser)
 * Saysky Blaze Pants løbebukser str. XL
