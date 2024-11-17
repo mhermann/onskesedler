@@ -36,3 +36,4 @@
 * J67 stole - gerne brugte
 * Pladespiller AT-LP60XBT eller AT-LP60XUSB
 * Vinreol - gerne 2 stk (<https://www.wineandbarrels.com/shop/209-mensolas-vinreoler/1441-mensolas---fyrretrae---9-flasker/#details>)
+* Gasgrill - rektangulær, må gerne være brugt
