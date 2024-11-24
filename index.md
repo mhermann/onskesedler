@@ -24,7 +24,6 @@
 
 ### Mathias
 
-* Sonos Ray
 * Sonos Era 100
 * Ikea Symfonisk Bookshelf
 * Pastaskåle, fx rillet, brun eller blå
