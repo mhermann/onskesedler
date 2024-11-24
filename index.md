@@ -31,6 +31,8 @@
 * Ninja blender BN800EU (https://www.pricerunner.dk/pl/1244-5294281/Koekkenmaskiner-Foodprocessorer/Ninja-BN800EU-Sammenlign-Priser)
 * Saysky Blaze Pants løbebukser str. XL
 * Plakat fra mormor and me A3 (link kommer)
+* Plakat: Max Ernst - Bonjour Satanas (<https://shop.kunsten.dk/plakat-max-ernst-bonjour-satanas>)
+* Plakat: Wolf Vostell - Lipstick B 52 Bomber (<https://shop.kunsten.dk/plakat-wolf-vostell-lipstick-b-52-bomber>)
 * Støvsuger (link kommer)
 * J67 stole - gerne brugte
 * Pladespiller AT-LP60XBT eller AT-LP60XUSB
