@@ -40,3 +40,7 @@
 * Gasgrill - rektangulær, må gerne være brugt
 * Tilskud til vinterjakke
 * Pendel (<https://outletlamper.dk/products/braided-pendel-1>)
+* Tykbundet gryde, 3L
+* Kasserolle, cirka 1,5L
+* Brødkniv - fx. fra Ikea
+* Urtekniv - fx. fra Ikea
