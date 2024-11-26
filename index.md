@@ -44,3 +44,5 @@
 * Kasserolle, cirka 1,5L
 * Brødkniv - fx. fra Ikea
 * Urtekniv - fx. fra Ikea
+* Små skåle til dyppesovs. fx soya, ketchup
+* Vinprop - fx Zwilling Fresh & Save
