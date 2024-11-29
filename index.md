@@ -12,15 +12,9 @@
 * Magnatiles - meget gerne brugt
 * Paw patrol skraldespand  -->
 
-<!-- ### Molly
+### Molly
 
-* Gavekort til Normal
-* Neon skilt fra Harald Nyborg (<https://www.harald-nyborg.dk/bright-design-neonskilt-palme-h-31-x-b-25-cm>)
-* Slushy maker (<https://www.coolstuff.dk/hjem-have/koekken/kopper-glas/chillfactor-slushy-maker-pid-18072>)
-* Gavekort til McDonalds
-* Penge
-* Gavekort til smyks.dk
-* Boks med Heishi Fimo ler perler, rainbow (<https://kreabeads.dk/vare/boks-med-heishi-fimo-ler-perler-rainbow-6x1mm/>) -->
+Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 
 ### Mathias
 
