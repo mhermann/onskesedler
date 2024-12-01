@@ -43,3 +43,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Urtekniv - fx. fra Ikea
 * Små skåle til dyppesovs. fx soya, ketchup
 * Vinprop - fx Zwilling Fresh & Save
+* Plakat: Lego (<https://postera.dk/products/lego-colors?currency=DKK>)
