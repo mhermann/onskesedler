@@ -44,3 +44,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Små skåle til dyppesovs. fx soya, ketchup
 * Vinprop - fx Zwilling Fresh & Save
 * Plakat: Lego (<https://postera.dk/products/lego-colors?currency=DKK>)
+* Plakat: DATA (<https://postera.dk/products/data?pr_prod_strat=e5_desc&pr_rec_id=a4e5c2eaa&pr_rec_pid=8630725968207&pr_ref_pid=8630738125135&pr_seq=uniform>)
