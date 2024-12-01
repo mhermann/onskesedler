@@ -1,16 +1,19 @@
 ## Ønskesedler
 
-<!-- ### Zoey
+### Zoey
 
-* Modellervoks og ting dertil 
-* Aktivitetsbøger meget gerne Bluey eller Spidey og ligesom dem her: 
-** <https://www.plusbog.dk/bluey-let-s-stick-bluey-9780241551950>
-** <https://www.saxo.com/dk/spidey-og-hans-fantastiske-venner-aktivitetsbog-kolli-6_bog_9788727014722>
-* Spider man kostume 104 - meget gerne brugt 
-* Paw patrol Wall stickers som dem her: <https://www.bilka.dk/produkter/paw-patrol-kaempe-wallstickers/100553517/>
-* Paw patrol plakat
-* Magnatiles - meget gerne brugt
-* Paw patrol skraldespand  -->
+* Paw Patrol - Cat pack bil
+* Alle Paw Patrol hundene som bamser
+* Pedal cykel med en kurv foran i pink 
+* Små perler og små perleplader - fx: 
+  * <https://www.br.dk/produkter/hama-midi-smaa-stiftplader-bil-papegoeje-og-dinosaur/200053295/>
+  * <https://www.br.dk/produkter/hama-stiftplade-hjerte/200077435/>
+  * <https://www.br.dk/produkter/hama-midi-perler-19-000-stk-mix/100014082/>
+* LEGO Marvel Spider-Mans bil og Doc Ock (<https://www.br.dk/produkter/lego-marvel-spider-mans-bil-og-doc-ock-10789/200167552/>)
+* LEGO City Damptromle (<https://www.br.dk/produkter/lego-city-damptromle-60401/200236264/>)
+* LEGO City Politibil (<https://www.br.dk/produkter/lego-city-politibil-60312/200062381/>)
+* LEGO Spideys Team Hovedkvarter (<https://www.br.dk/produkter/lego-team-spideys-netspinder-hovedkvarter-10794/200236230/>)
+* LEGO Gabbys Dukkehus Gabby og Havkats skib og skønhedssalon (<https://www.br.dk/produkter/lego-gabbys-dukkehus-gabby-og-havkats-skib-og-skoenhedssalon-10786/200200838/>)
 
 ### Molly
 
