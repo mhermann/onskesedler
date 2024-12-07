@@ -14,6 +14,7 @@
 * LEGO City Politibil (<https://www.br.dk/produkter/lego-city-politibil-60312/200062381/>)
 * LEGO Spideys Team Hovedkvarter (<https://www.br.dk/produkter/lego-team-spideys-netspinder-hovedkvarter-10794/200236230/>)
 * LEGO Gabbys Dukkehus Gabby og Havkats skib og skønhedssalon (<https://www.br.dk/produkter/lego-gabbys-dukkehus-gabby-og-havkats-skib-og-skoenhedssalon-10786/200200838/>)
+* Mimbo Jimbo bøger
 
 ### Molly
 
