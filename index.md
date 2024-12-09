@@ -25,18 +25,13 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Sonos Era 100
 * Ikea Symfonisk Bookshelf
 * Pastaskåle, fx rillet, brun eller blå
-* Airfryer - fx med to rum
 * Ninja blender BN800EU (https://www.pricerunner.dk/pl/1244-5294281/Koekkenmaskiner-Foodprocessorer/Ninja-BN800EU-Sammenlign-Priser)
 * Saysky Blaze Pants løbebukser str. XL
-* Plakat: Max Ernst - Bonjour Satanas (<https://shop.kunsten.dk/plakat-max-ernst-bonjour-satanas>)
 * Plakat: Wolf Vostell - Lipstick B 52 Bomber (<https://shop.kunsten.dk/plakat-wolf-vostell-lipstick-b-52-bomber>)
 * Støvsuger (fx https://www.elgiganten.dk/product/hjem-rengoring-kokkenudstyr/rengoring/ledningsfri-stovsuger/electrolux-500-ledningslos-stovsuger-es52cb18dg-morkegra/604822)
 * J67 stole - gerne brugte
 * Pladespiller AT-LP60XBT eller AT-LP60XUSB
-* Vinreol - gerne 2 stk (<https://www.wineandbarrels.com/shop/209-mensolas-vinreoler/1441-mensolas---fyrretrae---9-flasker/#details>)
 * Gasgrill - rektangulær, må gerne være brugt
-* Tilskud til vinterjakke
-* Pendel (<https://outletlamper.dk/products/braided-pendel-1>)
 * Tykbundet gryde, 3L
 * Kasserolle, cirka 1,5L
 * Brødkniv - fx. fra Ikea
