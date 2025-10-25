@@ -24,3 +24,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Cotopaxi fleece
 * Patagonia bukser
 * Skruemaskine fra Parkside (Lidl)
+* Elektronisk p-skive med solceller 
