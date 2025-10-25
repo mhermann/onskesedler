@@ -23,3 +23,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Laptop stand, Ikea Stenerik (https://www.ikea.com/dk/da/p/stenerik-stotte-til-baerbar-computer-30564012)
 * Cotopaxi fleece
 * Patagonia bukser
+* Skruemaskine fra Parkside (Lidl)
