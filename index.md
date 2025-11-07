@@ -25,3 +25,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Patagonia bukser
 * Skruemaskine fra Parkside (Lidl)
 * Elektronisk p-skive med solceller 
+* Shark Tæpperenser StainStriker PX200EUT
