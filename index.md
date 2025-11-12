@@ -27,3 +27,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Elektronisk p-skive med solceller 
 * Shark Tæpperenser StainStriker PX200EUT
 * Cykelhjelm med MIPS str. large/60cm
+* Toiletsæde til IFÖ Cera. Gerne med softclose og keramisk (eller i hvert fald ikke billigste kvalitet)
