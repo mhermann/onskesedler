@@ -22,6 +22,6 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Elektronisk p-skive med solceller 
 * Shark Tæpperenser StainStriker PX200EUT
 * Toiletsæde til IFÖ Cera. Gerne med softclose og keramisk (eller i hvert fald ikke billigste kvalitet)
-* Tynd men varm hue til at have på under cykelhjelm 
+* Tynd men varm hue til at have på under cykelhjelm som https://www.elgiganten.dk/product/personlig-pleje-skonhed-velvare/modetilbehor/toj/beanie-hue-morkegra/242097
 * Aarhus Fremad trøje, str xxl
 * (Tilskud til) robotstøvsuger, fx Dreame D20 Ultra med roterende mopper og rensestation
