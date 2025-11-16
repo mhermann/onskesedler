@@ -24,3 +24,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Toiletsæde til IFÖ Cera. Gerne med softclose og keramisk (eller i hvert fald ikke billigste kvalitet)
 * Tynd men varm hue til at have på under cykelhjelm 
 * Aarhus Fremad trøje, str xxl
+* (Tilskud til) robotstøvsuger, fx Dreame D20 Ultra med roterende mopper og rensestation
