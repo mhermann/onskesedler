@@ -25,3 +25,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Tynd men varm hue til at have på under cykelhjelm som https://www.elgiganten.dk/product/personlig-pleje-skonhed-velvare/modetilbehor/toj/beanie-hue-morkegra/242097
 * Aarhus Fremad trøje, str xxl
 * (Tilskud til) robotstøvsuger, fx Dreame D20 Ultra med roterende mopper og rensestation
+* Tørrestativ, fx Mulig fra IKEA
