@@ -20,4 +20,5 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Aarhus Fremad trøje, str xxl
 * (Tilskud til) robotstøvsuger, med roterende mopper og rensestation, fx:
   * Dreame L50
+  * Dreame L40
   * Roborock Qrevo Edge 
