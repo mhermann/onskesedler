@@ -19,6 +19,6 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Uldtrøje fra Uniqlo, brun, str. XXL (https://www.uniqlo.com/dk/en/products/E486071-000/00?colorDisplayCode=36&sizeDisplayCode=007&pldDisplayCode=000&utm_medium=social&utm_source=appshare)
 * Støvler, str. 46, fx. Polo Ralph Lauren Talan Chelsea Boot, brown (https://www.zalando.dk/polo-ralph-lauren-talan-chlsea-stoevletter-polo-brown-po212k00c-o11.html)
 * Frakke fra Casual Friday, navy, str. XXL, model CFEZEQUIEL 0365
-* Chanel Allure Homme Sport Eau de Toilette Spray
+* Chanel Allure Homme Sport Eau de Toilette Spray, 100 ml (https://prisjagt.dk/product.php?p=459243)
 * Fleetwood Mac - Rumours (LP)
 * Balstyrko - Jagten på noget (LP)
