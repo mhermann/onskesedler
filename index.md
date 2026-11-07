@@ -22,3 +22,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Chanel Allure Homme Sport Eau de Toilette Spray, 100 ml
 * Fleetwood Mac - Rumours (LP)
 * Balstyrko - Jagten på noget (LP)
+* Dr. Martens 2976 Chelsea Boots Dark Brown Crazy Horse str. 45 <https://www.magasin.dk/2976-ys-dark-brown-crazy-horse/S11028918.html>
