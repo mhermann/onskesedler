@@ -24,3 +24,4 @@ Mollys ønsker (<https://onskeskyen.dk/s/dsmzr2>)
 * Balstyrko - Jagten på noget (LP)
 * Dr. Martens 2976 Chelsea Boots Dark Brown Crazy Horse str. 45 <https://www.magasin.dk/2976-ys-dark-brown-crazy-horse/S11028918.html>
 * Mobillader til bilen fx. Anker <https://www.proshop.dk/Mobil-Adaptere-Opladere/Anker-325-1A1C-53W-PD-Car-Charger/3203650>
+* Varme strømper str. 46 fx <https://www.spejdersport.dk/products/devold-sok-nansen-grey?variant=56882265784660>
